@@ -1,0 +1,2 @@
+# mn-ico
+Mongolia
