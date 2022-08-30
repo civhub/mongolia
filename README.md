@@ -1,2 +1,2 @@
-# mn-ico
-Mongolia
+# Mongolia (Icon Pack)
+Mongolia (Icon Pack)
